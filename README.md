@@ -1,5 +1,5 @@
 ## <img src="https://raw.githubusercontent.com/ABSphreak/ABSphreak/master/gifs/Hi.gif" width="30px" height="30px"> Hey, I am Bubbly
-I am bubbly i like to code and watch netflix, i have now been coding over 3 years now 🤯 time flys by! I also love creativity, My name on discord is Bubbly#7055 dm me if you want to message me about something.
+I am bubbly i like to code , i have now been coding over 5 years now 🤯 time flys by! I also love creativity, My name on discord is bubblydevs dm me if you want to message me about something.
 
 **My favourite emoji is: 🌌**
 
