@@ -21,6 +21,5 @@ I am bubbly i like to code , i have now been coding over 5 years now 🤯 time f
 
 ## ⭐ My Discords:
 
-[Profile Technologies](https://discord.gg/CYZC6HERqd)  
-[Bubbly Studio](https://discord.gg/DUZcQAEe)
+[Bubble Productions](https://discord.gg/tcE7N28Mb5)  
 <p> <img src="https://discord.c99.nl/widget/theme-2/664141231366078464.png" alt="Discord" /> </p>
