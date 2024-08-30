@@ -1,5 +1,4 @@
-## <img src="https://raw.githubusercontent.com/ABSphreak/ABSphreak/master/gifs/Hi.gif" width="30px" height="30px"> Hey, I am Bubbly
-I am bubbly i like to code , i have now been coding over 5 years now 🤯 time flys by! I also love creativity, My name on discord is bubblydevs dm me if you want to message me about something.
+## <img src="https://raw.githubusercontent.com/ABSphreak/ABSphreak/master/gifs/Hi.gif" width="30px" height="30px"> Hey, I am Matthew!
 
 ## 🤯 Programming Languages i know:
 ![HTML](https://img.shields.io/badge/HTML-E34F26?style=for-the-badge&logo=html5&logoColor=white)&nbsp;
@@ -18,4 +17,3 @@ I am bubbly i like to code , i have now been coding over 5 years now 🤯 time f
 ## ⭐ My Discords:
 
 [Bubble Productions](https://discord.gg/tcE7N28Mb5)  
-<p> <img src="https://discord.c99.nl/widget/theme-2/664141231366078464.png" alt="Discord" /> </p>
